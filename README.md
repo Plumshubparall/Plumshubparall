@@ -1,6 +1,6 @@
 ![FOTO](https://github.com/Plumshubparall/Plumshubparall/assets/124366797/c1fca15e-c502-4c91-8487-8de140230765)   
 
-alejandra lopez
+alejandra lopez :
  apasionada developer  web . ingenieria. 
 
  programacion unity, blender creadora de plums inc
