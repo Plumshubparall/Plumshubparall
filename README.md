@@ -1,5 +1,9 @@
 ![FOTO](https://github.com/Plumshubparall/Plumshubparall/assets/124366797/c1fca15e-c502-4c91-8487-8de140230765)   
 
+
+https://github.com/user-attachments/assets/be8d0ab6-a40b-4b2f-a130-6fed04e510c0
+
+
 alejandra lopez :
  apasionada developer  web . ingenieria. 
 
