@@ -5,7 +5,7 @@ alejandra lopez :
 
  programacion unity, blender creadora de plums inc
   
- actualmente estoy como plumsparall.ls
+ actualmente estoy como plumsparalle.ls
 
 paso mucho tiempo escribiendo codigo y probando ideas
 
