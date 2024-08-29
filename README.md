@@ -25,4 +25,4 @@ soy alejandr un developer buenos aires argentina  me encanta programar como joby
 https://github.com/Plumshubparall/Plumshubparall/assets/124366797/66f1ccb8-d16c-4f5a-9877-24327aa88e1e
 
 https://fb.me/alejandr.me/
-https://fb.me7darkface.123 alejandra multijuegos
+https://fb.me/darkface.123 alejandra multijuegos
