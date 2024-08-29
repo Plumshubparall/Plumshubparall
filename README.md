@@ -24,5 +24,5 @@ contacto: al4586101@gmail.com
 soy alejandr un developer buenos aires argentina  me encanta programar como joby y trabajo 
 https://github.com/Plumshubparall/Plumshubparall/assets/124366797/66f1ccb8-d16c-4f5a-9877-24327aa88e1e
 
-https://www.alejandr.me/
-
+https://fb.me/alejandr.me/
+https://fb.me7darkface.123 alejandra multijuegos
